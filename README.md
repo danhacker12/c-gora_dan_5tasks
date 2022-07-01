@@ -1,0 +1,1 @@
+# c-gora_dan_5tasks
